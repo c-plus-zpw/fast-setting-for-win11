@@ -1,0 +1,1 @@
+# fast-setting-for-win11
